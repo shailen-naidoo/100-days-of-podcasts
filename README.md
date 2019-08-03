@@ -4,6 +4,8 @@
 
 > **Listen to at least one podcast a day for 100 consecutive days**
 
+I came up with this idea while listening to podcast in the shower, what's the worst that could happen if you choose to participate? 😊
+
 ## How to participate
 
 1. Select a social media of your choice, preferrably Twitter.
