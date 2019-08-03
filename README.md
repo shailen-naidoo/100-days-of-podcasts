@@ -10,7 +10,7 @@ I came up with this idea while listening to podcast in the shower, what's the wo
 
 1. Select a social media of your choice, preferrably Twitter.
 2. Create a post stating that you are participating in the **"100 days of podcasts"** challenge using the _#100daysofpodcasts_ on your preferred social media platform.
-3. Everyday post what podcast you are listening to and a link to it (don't forget the _#100daysofpodcasts_).
+3. Everyday post what podcast you are listening to and a link to it (don't forget the _#100daysofpodcasts_ and let us know what day you are on).
 
 ## Rules
 
